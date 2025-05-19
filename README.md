@@ -1,4 +1,4 @@
-# Oppurtunità di lavoro in ambito Oracle APEX! 🚀
+# Opportunità di lavoro in ambito Oracle APEX! 🚀
  
 ### Ciao 👋, 
 
